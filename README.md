@@ -1,1 +1,1 @@
-# Indè Vogue
+# Inde Vogue
